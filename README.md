@@ -1,1 +1,2 @@
-# insanely-talented-player
+# Insanely Talented Player
+Déjà six ans que le sort du monde est en jeu à cause d'événements surnaturels inexplicables. Kang Yoosung, le joueur le plus fort et roi-héros, s’est toujours hissé à la première place du classement des héros et a sauvé le monde de catastrophes hors normes. Cependant, lors de la conférence de presse, ses paroles choquent tout le monde : « C’est fini pour moi depuis belle lurette, p*tain. Je ne fais ça que pour l’argent. ». Le héros aimé de tous a décidé de vivre autrement. Quelle en est la raison ? Pourquoi devient-il plus fort après chaque provocation ?
